@@ -117,13 +117,11 @@ I also participated in tree plantation activities to contribute towards a greene
 These activities helped me understand the importance of community service, empathy, teamwork, and environmental responsibility.
 
 ### **Activities Involved**
-- **Blood Donation** – Donated blood and supported basic assistance tasks during the camp. <!-- add the location where you given -->
 - **Tree Plantation Drive** – Participated by planting trees and contributing to environmental improvement at Neral, Maharashtra.
 - **Helping Elder Citizens** – Assisted senior citizens through a food-serving activity, spending time serving and interacting with them at Badlapur, Maharashtra.
 
 ### **Impact / Contribution**
 
-- Helped create a supportive environment during the blood donation camp. <!-- add the location where you given -->
 - Actively participated in promoting a greener and cleaner surroundings.
 - Offered personal assistance to elder citizens through the food-serving activity, strengthening community bonds.
 - Improved skills in communication, coordination, and social responsibility.
